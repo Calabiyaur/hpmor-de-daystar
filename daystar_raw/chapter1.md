@@ -2,11 +2,11 @@
 
 ---
 
-Im Mondlicht schimmert ein winziges Silberfragment, eine zarte Linie...
+_Im Mondlicht schimmert ein winziges Silberfragment, eine zarte Linie..._
 
-(schwarze Umhänge fallen)
+_(schwarze Umhänge fallen)_
 
-...Blut fließt in Strömen und jemand schreit ein Wort.
+_...Blut fließt in Strömen und jemand schreit ein Wort._
 
 ---
 
@@ -246,4 +246,4 @@ Und ihr Gesicht verschwand wieder hinter dem Zaun.
 
 Es herrschte eine lange Stille im Garten.
 
-Dann sagte eine Jungenstimme, ruhig und leise: „Was.“
+Dann sagte eine Jungenstimme, ruhig und leise: „Was zum Teufel.“
