@@ -2,7 +2,7 @@
 
 ---
 
-_Im Mondlicht schimmert ein winziges Silberfragment, eine zarte Linie..._
+_Unter dem Mondlicht schimmert ein winziges Silberfragment, eine zarte Linie..._
 
 _(schwarze Umhänge fallen)_
 

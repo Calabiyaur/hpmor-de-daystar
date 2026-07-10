@@ -1,8 +1,8 @@
-# Kapitel 2: Alles, was ich glaube, ist falsch
+# Kapitel 2: Alles, woran ich glaube, ist falsch
 
 ---
 
-_Natürlich war es meine Schuld. Es gibt ja sonst niemanden hier, der für irgendetwas verantwortlich sein könnte._
+_Natürlich war es meine Schuld. Es gibt hier niemanden sonst, der für irgendetwas verantwortlich sein könnte._
 
 ---
 
