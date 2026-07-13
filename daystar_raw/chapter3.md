@@ -18,51 +18,47 @@ Petunia Evans-Verres betrachtete Harry im Rückspiegel des Autos, als könne sie
 
 Jedes Buch über Magie, das er fand, handelte von komplizierten Ritualen, mit denen man irgendein kleines, vages Unglück herbeiführte, oder davon, sich durch „positive Anziehung“ Reichtum und Glück herbeizuwünschen – oder von ähnlichem, nicht verifizierbarem Wohlfühlgerede. Nichts davon auch nur annähernd vergleichbar damit, einen Menschen durch ein paar Wörter und den Schwung eines Stöckchens in die Luft zu befördern, geschweige denn sich in eine Katze zu verwandeln. Und nirgends auch nur ein Wort von einem „Hogwarts“.
 
-# Korrekturlesen ab hier
+Offenbar bemühte sich jemand sorgfältig, jede echte Magie aus Buchhandlungen und Bibliotheken fernzuhalten – ein Gedanke, den Harry zugleich beunruhigend und aufregend fand. Einerseits stand er kurz davor, Teil einer gewaltigen, weltweiten Verschwörung zu werden, wie er sie bislang nur aus Romanen kannte. Andererseits war die Vorstellung davon, dass eine Gruppe von Menschen tatsächlich in der Lage war, eine solche Verschwörung im Verborgenen durchzusetzen, auf ihre Weise erschreckend. Er fragte sich, wie allmächtig sie wirklich waren und ob auch nichtmagische Behörden an der Vertuschung beteiligt waren.
 
-Offenbar wurde jede echte Magie durch eine organisierte Anstrengung aus Buchhandlungen und Bibliotheken ferngehalten – ein Gedanke, den Harry zugleich beunruhigend und aufregend fand. Einerseits stand er kurz davor, Teil einer gewaltigen, weltweiten Verschwörung zu werden, wie er sie bislang nur aus Romanen kannte. Andererseits war die Vorstellung einer Gruppe von Menschen, die tatsächlich in der Lage war, eine solche Verschwörung im Verborgenen durchzusetzen, auf ihre Weise erschreckend. Er fragte sich, wie allmächtig sie wirklich waren und ob auch nichtmagische Behörden an der Vertuschung beteiligt waren.
-
-Mrs. Figg weigerte sich kategorisch, auch nur eine einzige seiner Fragen über Magie zu beantworten. Harry vermutete, Professor McGonagall habe sie dazu angewiesen, doch Mrs. Figg bestand darauf, dies geschehe aus „Sicherheitsgründen“.
+Mrs. Figg weigerte sich kategorisch, auch nur eine einzige seiner Fragen über Magie zu beantworten. Harry vermutete, Professor McGonagall habe sie dazu angewiesen, doch Mrs. Figg bestand darauf, es wäre aus „Sicherheitsgründen“.
 
 Schließlich war vorgestern eine weitere Nachricht bei ihnen eingetroffen. Professor McGonagall hatte ihnen eine Uhrzeit und eine Adresse genannt, an der Harry sie treffen sollte, um seine Schulsachen zu besorgen. Deshalb hatte ihn seine Mutter an diesem Morgen nach London gefahren – ungewöhnlich still und nervös.
 
-Harry nahm an, sie sorge sich, dass er einen schlechten Eindruck hinterlassen könnte. Er selbst war jedoch fest entschlossen, sich nicht den geringsten Ärger einzuhandeln, der seine Aufnahme in die magische Welt gefährden könnte. Wenn ihm die vergangenen Wochen eines über sich selbst gezeigt hatten, dann dies: Er konnte es nicht ertragen, von einem Rätsel zu wissen und keine Möglichkeit zu haben, es zu lösen. Allein der Gedanke, sein Leben fortzusetzen, ohne mehr über Magie zu erfahren ... ganz gleich, welches wissenschaftliche Fachgebiet er später wählen würde – der bloße Gedanke an die wahre Natur der Wirklichkeit, von der er einen flüchtigen Blick erhascht hatte, würde ihn in den Wahnsinn treiben.
+Harry nahm an, sie sorge sich, dass er einen schlechten Eindruck hinterlassen könnte. Er selbst war jedoch fest entschlossen, sich nicht den geringsten Ärger einzuhandeln, der seine Aufnahme in die magische Welt gefährden könnte. Wenn ihm die vergangenen Wochen eines über sich selbst gelehrt hatten, dann, dass er es nicht ertragen konnte, von einem Geheimnis zu wissen und nicht in der Lage zu sein, es zu lüften. Allein der Gedanke, sein Leben fortzusetzen, ohne mehr über Magie zu erfahren ... ganz gleich, welches wissenschaftliche Fachgebiet er später wählen würde: der bloße Gedanke an die wahre Natur der Wirklichkeit, von der er gerade einen flüchtigen Blick erhascht hatte, würde ihn in den Wahnsinn treiben.
 
 Als sie die angegebene Adresse erreichten, parkte Harrys Mutter neben einer Reihe von Geschäften. Harry stieg aus dem Wagen und sah sich um, während seine Mutter das Seitenfenster herunterließ.
 
-„Also“, sagte Petunia nach einer kurzen Pause und ließ den Blick die Straße auf und ab wandern. „Professor McGonagall sehe ich nirgends ... obwohl wir etwas zu früh sind. Wo, glaubst du, soll dieser Ort sein? ›Zum Tropfenden Kessel‹ hieß er doch, oder?“
+„Also“, sagte Petunia nach einer kurzen Pause und ließ den Blick die Straße auf und ab wandern. „Professor McGonagall sehe ich noch nicht ... wobei wir auch etwas früh sind. Wo, glaubst du, soll dieser Ort sein? ›Zum Tropfenden Kessel‹ hieß er doch, oder?“
 
-Harry drehte sich langsam einmal im Kreis und musterte die Läden entlang der Straße. Nichts sah auch nur entfernt nach einem Geschäft aus, das Zauberstäbe verkaufte – nicht einmal als Scherz. Es gab eine elegante Boutique, einen Friseursalon, eine Eisdiele, einige Schnellrestaurants, eine Buchhandlung (in die er kurz hineinlief, sich einen Moment umsah und gleich wieder herauskam) und einen Pub.
-
-„Da“, sagte er und zeigte auf den Tropfenden Kessel, ein gemütliches Backsteingebäude, das zwischen der Buchhandlung und einem Plattenladen eingezwängt war. „Vielleicht ist sie schon drin.“
+Harry drehte sich langsam im Kreis und musterte die Läden entlang der Straße. Keiner davon *sah* nach einem Geschäft *aus*, das Zauberstäbe verkaufte – nicht einmal als Scherz. Es gab eine elegante Boutique, einen Friseursalon, eine Eisdiele, einige Fastfood-Restaurants, eine Buchhandlung (in die er kurz hineinlief, sich einen Moment umsah und wieder herauskam) und einen Pub - „da“, sagte er und zeigte auf den Tropfenden Kessel, ein gemütliches Backsteingebäude, das zwischen der Buchhandlung und einem Plattenladen eingezwängt war. „Vielleicht ist sie schon drin.“
 
 „Hm?“ Harrys Mutter blickte vage in die Richtung, in die er gezeigt hatte. „Hast du gesagt, du hast sie gesehen?“
 
-Harry hob erneut die Hand, um zu zeigen, hielt dann jedoch inne und sah erst seine Mum an, dann wieder den Pub. Sie blickte direkt darauf. „Was siehst du zwischen diesem Buchladen und dem Plattenladen?“
+Harry hob erneut die Hand, um zu zeigen, hielt dann jedoch inne und sah erst seine Mum an, dann wieder den Pub. Sie blickte direkt darauf. „Was siehst du zwischen dem Buchladen und dem Plattenladen?“
 
 „Wie meinst du das, Schatz? In der Gasse?“
 
-Eine Gasse? Aus Harrys Perspektive schmiegten sich die Mauern des Tropfenden Kessels unmittelbar an die Nachbargebäude. „Du siehst den Pub dort nicht?“, fragte er und zeigte noch einmal direkt darauf.
+*Gasse?* Aus Harrys Perspektive schmiegten sich die Mauern des Tropfenden Kessels unmittelbar an die Nachbargebäude. „Du siehst den Pub dort nicht?“, fragte er und zeigte noch einmal direkt darauf.
 
-„Nein“, sagte Petunia. „Willst du mir etwa erzählen, dass dort einer ist?“
+„Nein“, sagte Petunia. „Willst du mir etwa erzählen, dass da einer ist?“
 
-Ein elektrisierendes Kribbeln lief Harry den Rücken hinauf, und er konnte sich einfach nicht zurückhalten. Er trat auf ein Paar zu, das gerade am Auto vorbeiging.
+Ein elektrisierendes Kribbeln lief Harry den Rücken hinauf, und er konnte sich einfach nicht zurückhalten. Er trat auf ein Paar in der Nähe zu, als es am Auto vorbeiging.
 
-„Entschuldigen Sie bitte. Ich fürchte, ich habe heute Morgen die falsche Brille mitgenommen und kann die Ladenschilder nicht richtig erkennen. Könnten Sie sie mir bitte von rechts nach links vorlesen?“ Er deutete mit der Hand.
+„Entschuldigen Sie bitte. Ich fürchte, ich habe heute Morgen die falsche Brille mitgenommen und kann die Ladenschilder nicht richtig erkennen. Könnten Sie sie mir bitte vorlesen, von rechts nach links?“ Er deutete mit der Hand.
 
-Der Mann warf ihm einen verwunderten Blick zu, doch die Frau begann die Namen aufzuzählen. Harry beobachtete aufmerksam ihre Augen, während sie den Buchladen und anschließend den Plattenladen nannte – ohne den Tropfenden Kessel auch nur zu erwähnen. Es wirkte, als glitte ihr Blick einfach über die Stelle hinweg, an der er stand, ohne sie überhaupt wahrzunehmen.
+Der Mann warf ihm einen verwunderten Blick zu, doch die Frau begann die Namen aufzuzählen. Harry beobachtete aufmerksam ihre Augen, während sie den Buchladen und anschließend den Plattenladen nannte, ohne den Tropfenden Kessel zu erwähnen. Es wirkte, als glitte ihr Blick einfach über die Stelle hinweg, an der er stand, ohne ihn überhaupt wahrzunehmen.
 
 „Vielen Dank.“
 
 Er kehrte zu seiner Mutter zurück, verlagerte nervös das Gewicht von einem Fuß auf den anderen und betrachtete den Pub. „Es liegt nicht nur an dir. Die beiden konnten ihn auch nicht sehen.“
 
-Da war es. Ein Beweis – so subtil er auch sein mochte –, dass er nicht wie andere Menschen war. Das inzwischen vertraute Gefühl der Orientierungslosigkeit überkam ihn, und sein Verstand raste vor Möglichkeiten, wie dieser Tarnzauber funktionieren könnte. Harry fragte sich, was wohl passieren würde, wenn er einen Stein aus dem Fenster des Pubs werfen würde. Würde das Glas für die Menschen auf der Straße plötzlich sichtbar werden? Es kostete ihn all seine Selbstbeherrschung, nicht sofort in den Pub zu stürmen und mit Experimenten an der Wahrnehmung seiner Mutter zu beginnen.
+Da war es. Ein Beweis, so subtil er auch sein mochte, dass er nicht so war wie andere Menschen. Das inzwischen vertraute Gefühl der Orientierungslosigkeit überkam ihn, und sein Verstand raste vor Möglichkeiten, wie dieser Tarnzauber wohl funktionierte. Harry fragte sich, was passieren würde, wenn er einen Stein aus dem Fenster des Pubs werfen würde. Würde das Glas für die Menschen auf der Straße plötzlich sichtbar werden? Es kostete ihn all seine Selbstbeherrschung, nicht sofort in den Pub zu stürmen und Experimente an der Wahrnehmung seiner Mutter durchzuführen.
 
-Wenn Zauberer zu solchen Dingen fähig waren, war es kein Wunder, dass Harry keine Bücher über sie hatte finden können. Vielleicht brauchte es gar keine gewaltige Verschwörung, um die Existenz der magischen Welt geheim zu halten. Was, wenn Nichtmagier die Bücher nicht einmal sehen konnten? Was hatte er in seinem Leben wohl noch alles gesehen, ohne zu merken, dass niemand sonst es wahrnahm? Vielleicht gab es noch einen weiteren Sicherheitsmechanismus – vielleicht musste man zusätzlich den Namen des Pubs kennen …
+Wenn Zauberer zu solchen Dingen fähig waren, war es kein Wunder, dass Harry keine Bücher über sie hatte finden können. Vielleicht brauchte es gar keine gewaltige Verschwörung, um die Existenz der magischen Welt geheim zu halten. Was, wenn Nichtmagier die Bücher nicht einmal sehen konnten? Was hatte er in seinem Leben wohl noch alles gesehen, ohne zu merken, dass niemand sonst es wahrnahm? Vielleicht gab es noch einen weiteren Sicherheitsmechanismus, vielleicht musste man zusätzlich den Namen des Pubs kennen …
 
 „Guten Morgen, Mr. Potter.“
 
-Harry fuhr herum und erblickte Professor McGonagall in ihrer ganzen hexenhaften Pracht, vollkommen unbeeindruckt von den irritierten Blicken der Passanten.
+Harry fuhr herum und erblickte Professor McGonagall in all ihrer hexenhaften Pracht, vollkommen unbeeindruckt von den irritierten Blicken der Passanten.
 
 „Guten Morgen, Professor“, sagte Harry. „Warum kann Mum den Tropfenden Kessel nicht sehen?“
 
@@ -74,15 +70,17 @@ Sie gab ihm einen Abschiedskuss und fuhr davon. Harry sah ihr nach und wandte si
 
 „Was ist ein Muggel?“
 
-Professor McGonagalls Lippen zuckten belustigt. „Es ist schön, Sie ebenfalls wiederzusehen, Mr. Potter. Als Muggel bezeichnen wir Menschen, die keinen einzigen Funken Magie in sich tragen. Wollen wir?“
+Professor McGonagalls Lippen zuckten belustigt. „Es ist mir ebenfalls eine Freude, Sie wiederzusehen, Mr. Potter. Als Muggel bezeichnen wir Menschen, die keinen Funken Magie in sich tragen. Wollen wir?“
 
-Harry folgte ihr auf den Pub zu.
+Harry folgte ihr in Richtung des Pubs.
 
-„Okay, Dad ist also ein Muggel. Aber Mum auch? Ihre Schwester war doch eine Hexe – heißt das nicht, dass es in ihrer Familie Magie gibt?“
+„Okay, Dad ist also ein Muggel. Aber Mum auch? Ihre Schwester war doch eine Hexe, heißt das nicht, dass es in ihrer Familie Magie gibt?“
 
-„Oh nein. Wenn ihre Eltern beide Muggel waren, dann war sie ebenfalls eine Muggel“, erklärte Professor McGonagall mit ihrer förmlichen schottischen Stimme. „Woran Sie denken, nennt man einen Squib. Das sind zwar Kinder eines Zauberers und einer Hexe, können aber selbst keine Magie wirken – die armen Dinger. Allerdings können sie viele magische Dinge wahrnehmen und verzauberte Gegenstände benutzen.“
+„Oh, nein. Wenn ihre Eltern beide Muggel waren, dann war sie ebenfalls ein Muggel“, erklärte Professor McGonagall mit ihrer förmlichen schottischen Stimme. „Woran Sie denken, nennt man einen Squib. Squibs sind zwar Kinder von Zauberern und Hexen, können aber selbst nicht zaubern, die armen Dinger. Allerdings können sie viele magische Dinge wahrnehmen und verzauberte Gegenstände benutzen.“
 
 Harry versuchte, diese Information mit seinem Verständnis von Genetik in Einklang zu bringen, wurde jedoch abgelenkt, als sie den Tropfenden Kessel betraten. Er fuhr mit dem Kopf herum, um zu sehen, ob beim Eintreten irgendetwas Bemerkenswertes geschah, konnte jedoch weder ein Unsichtbarkeitsfeld entdecken, das sich über ihn legte, noch schien irgendjemand auf der Straße zu bemerken, dass zwei Menschen plötzlich verschwanden.
+
+# Korrekturlesen ab hier
 
 Das Innere des Pubs war etwas düster und heruntergekommen. Hölzerne Tische standen verstreut im Halbdunkel, und eine schmuddelige Theke beherrschte die hintere Wand. Etwa ein Dutzend Menschen hielt sich dort auf; die meisten trugen Roben in den verschiedensten Farben.
 
