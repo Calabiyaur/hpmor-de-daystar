@@ -2,7 +2,7 @@
 
 ---
 
-_Aber die Frage ist dann — wer?_
+_Aber dann stellt sich die Frage - wer?_
 
 ---
 
@@ -82,75 +82,73 @@ Harry versuchte, diese Information mit seinem Verständnis von Genetik in Einkla
 
 # Korrekturlesen ab hier
 
-Das Innere des Pubs war etwas düster und heruntergekommen. Hölzerne Tische standen verstreut im Halbdunkel, und eine schmuddelige Theke beherrschte die hintere Wand. Etwa ein Dutzend Menschen hielt sich dort auf; die meisten trugen Roben in den verschiedensten Farben.
+Das Innere des Pubs war etwas düster und heruntergekommen. Hölzerne Tische standen verstreut im Halbdunkel, und die hintere Wand wurde von einer schmuddeligen Theke eingenommen. Etwa ein Dutzend Menschen hielt sich dort auf; die meisten trugen Roben in den verschiedensten Farben.
 
 „Guten Morgen, Professor McGonagall“, sagte der Wirt lächelnd.
 
 „Guten Morgen, Tom.“
 
-„Kann ich Ihnen etwas bringen – lieber Himmel.“ Er starrte Harry an; sein Blick wurde wie von selbst zu dessen Stirn gezogen. „Ist das ... kann das wirklich ...?“
+„Kann ich Ihnen etwas bringen – lieber Himmel.“ Er starrte Harry an; sein Blick wurde zu dessen Stirn gezogen. „Ist das ... kann das wirklich ...?“
 
-Harry beugte sich so weit über die Theke des Tropfenden Kessels, wie er konnte, obwohl sie ihm ungefähr bis zu den Augenbrauen reichte. Eine solche Frage verdiente schließlich seine allerbeste Antwort.
+Harry beugte sich so weit er konnte über die Theke des Tropfenden Kessels, obwohl sie ihm ungefähr bis zu den Augenbrauen reichte. Eine Frage wie diese verdiente sein Allerbestes.
 
-„Bin ich – könnte ich – vielleicht – man weiß ja nie – falls ich es nicht bin – aber dann stellt sich die Frage: Wer denn?“
+„Bin ich – könnte ich – vielleicht – man weiß ja nie – falls ich es nicht bin – aber dann stellt sich die Frage - wer?“
 
-„Du meine Güte“, flüsterte der alte Wirt. „Harry Potter ... was für eine Ehre.“
+„Gott behüte“, flüsterte der alte Wirt. „Harry Potter ... was für eine Ehre.“
 
-Harry blinzelte und fing sich wieder. „Nun ja, Sie sind ausgesprochen scharfsinnig; die meisten Leute erkennen das nicht so schnell ...“
+Harry blinzelte und fing sich dann wieder. „Nun, ja, Sie sind ausgesprochen scharfsinnig; die meisten Menschen erkennen das nicht so schnell ...“
 
-„Das reicht“, sagte Professor McGonagall. Ihre Hand legte sich fester auf Harrys Schulter und lenkte ihn in Richtung Hintertür. „Belästigen Sie den Jungen nicht, Tom. Das alles ist neu für ihn.“
+„Das reicht“, sagte Professor McGonagall. Sie legte ihre Hand fester auf Harrys Schulter und lenkte ihn in Richtung Hintertür. „Belästigen Sie den Jungen nicht, Tom, das ist alles neu für ihn.“
 
-„Aber er ist es wirklich?“, fragte eine alte Frau mit zitternder Stimme, die an der Theke saß. „Das ist Harry Potter?“ Mit einem scharrenden Geräusch erhob sie sich von ihrem Stuhl.
+„Aber er ist es wirklich?“, fragte eine alte Frau, die an der Theke saß, mit zitternder Stimme. „Es ist Harry Potter?“ Mit einem scharrenden Geräusch erhob sie sich von ihrem Stuhl.
 
-„Doris ...“, sagte McGonagall warnend.
+„Doris -“, sagte McGonagall warnend.
 
-Der strenge Blick, den sie durch den Raum schweifen ließ, genügte, um die meisten davon abzuhalten, mehr zu tun als miteinander zu tuscheln und Harry anzustarren; einige waren bereits halb von ihren Sitzen aufgestanden und erstarrten mitten in der Bewegung.
+Der strenge Blick, den sie durch den Raum jagte, genügte, um die meisten davon abzuhalten, mehr zu tun als miteinander zu tuscheln und Harry anzustarren; einige waren bereits halb von ihren Sitzen aufgestanden und erstarrten mitten in der Bewegung.
 
 „Ich möchte ihm nur die Hand schütteln“, flüsterte die Frau.
 
 Sie beugte sich tief vor und streckte ihm ihre weiche, runzlige Hand entgegen. Harry, der sich verwirrter und unbehaglicher fühlte als jemals zuvor in seinem Leben, ergriff sie vorsichtig. Tränen fielen aus den Augen der alten Frau auf ihre ineinandergelegten Hände.
 
-„Mein Enkel war Auror“, flüsterte sie ihm zu. „Er ist neunundsiebzig gestorben. Danke, Harry Potter. Dem Himmel sei Dank für dich.“
+„Mein Enkel war ein Auror“, flüsterte sie ihm zu. „Er ist neunundsiebzig gestorben. Danke, Harry Potter. Dem Himmel sei Dank für dich.“
 
-„Gern geschehen“, sagte Harry automatisch und warf Professor McGonagall dann einen verängstigten, flehenden Blick zu.
+„Keine Ursache“, sagte Harry vollkommen automatisch und warf Professor McGonagall einen verängstigten, flehenden Blick zu.
 
-Nun begannen auch andere, sich ihnen wieder zu nähern, doch Professor McGonagall stampfte mit dem Fuß auf.
+McGonagall stampfte mit ihrem Fuß auf den Boden, gerade als die Leute Anstalten machten, auf Harry einzustürmen. Es gab ein Geräusch, bedrohlicher als Donnergrollen, und alle erstarrten in der Bewegung.
 
-Das Geräusch war so gewaltig, dass Harry von nun an eine ganz neue Vorstellung davon hatte, was mit einem „donnernden Paukenschlag“ gemeint sein konnte. Die Gäste der Schankstube erstarrten erneut genau in dem Moment, als der allgemeine Ansturm beginnen wollte.
+„Wir haben es eilig.“ sagte Professor McGonagall in einer bemerkenswert normal klingenden Stimme.
 
-„Wir haben es eilig“, sagte Professor McGonagall mit ruhiger Stimme.
+Sie verließen den Pub ohne weitere Schwierigkeiten.
 
-Sie verließen den Schankraum, ohne weiter aufgehalten zu werden.
+„Professor?“, sagte Harry, als sie draußen waren. Sie befanden sich in einem grasbewachsenen Innenhof, der auf allen Seiten von hohen Backsteinmauern umgeben war. Eigentlich hatte er fragen wollen, was dort eben geschehen war, doch zu seiner eigenen Verwunderung stellte er stattdessen eine völlig andere Frage.
 
-„Professor?“, sagte Harry, nachdem sie draußen waren. Sie befanden sich in einem grasbewachsenen Innenhof, der auf allen Seiten von hohen Backsteinmauern umgeben war. Eigentlich hatte er fragen wollen, was dort eben geschehen war, doch zu seiner eigenen Verwunderung stellte er stattdessen eine völlig andere Frage.
-
-„Wer war dieser blasse Mann dort in der Ecke? Der mit dem zuckenden Auge, der zusammengesunken auf seinem Stuhl saß?“
+„Wer war dieser blasse Mann in der Ecke? Der mit dem zuckenden Auge, der zusammengesunken auf seinem Stuhl saß?“
 
 „Hm?“ Professor McGonagall klang etwas überrascht; vielleicht hatte sie mit dieser Frage ebenfalls nicht gerechnet. „Das war Professor Quirinus Quirrell. Er wird dieses Jahr in Hogwarts Verteidigung gegen die Dunklen Künste unterrichten.“
 
-„Ich hatte das seltsamste Gefühl, als würde ich ihn kennen ...“ Harry rieb sich die Stirn. „Und dass ich ihm auf keinen Fall die Hand schütteln sollte.“
+„Ich hatte das seltsame Gefühl, dass ich ihn kenne ...“ Harry rieb sich die Stirn. „Und dass ich ihm nicht die Hand schütteln sollte.“
 
-Es war, als träfe man jemanden wieder, der früher einmal ein Freund gewesen war, bevor etwas furchtbar schiefgelaufen war ... Nein, das traf es eigentlich auch nicht, aber Harry fand keine besseren Worte.
+Als ob er jemanden getroffen hätte, der einst sein Freund gewesen war, bevor etwas furchtbar schiefgelaufen war ... Nein, das traf es eigentlich auch nicht, aber Harry fand keine besseren Worte.
 
-„Und was war ... das alles eben?“
+„Und was *war* ... das alles eben?“
 
 Professor McGonagall betrachtete ihn mit einem merkwürdigen Blick.
 
-„Mr. Potter ... wissen Sie eigentlich ... wie viel hat man Ihnen darüber erzählt, wie Ihre Eltern gestorben sind?“
+„Mr. Potter ... wissen Sie ... wie viel hat man Ihnen darüber erzählt, wie Ihre Eltern gestorben sind?“
 
-Harry erwiderte ihren Blick ruhig. „Meine Eltern sind am Leben und wohlauf, danke. Sie haben mir erzählt, dass meine leiblichen Eltern bei einem Autounfall ums Leben kamen, als ich ein Jahr alt war.“
+Harry erwiderte ihren Blick fest. „Meine Eltern sind am Leben und wohlauf, danke. Sie haben mir erzählt, dass meine leiblichen Eltern bei einem Autounfall ums Leben kamen, als ich ein Jahr alt war.“
 
 „Das zeugt von bewundernswerter Loyalität“, sagte Professor McGonagall. Ihre Stimme wurde leiser. „Auch wenn es ein wenig schmerzt, Sie so etwas sagen zu hören. Lily und James waren Freunde von mir.“
 
-Harry sah weg und schämte sich plötzlich. „Es tut mir leid“, sagte er mit leiser Stimme. „Aber ich habe eine Mum und einen Dad. Und ich weiß, dass ich mich nur unglücklich machen würde, wenn ich diese Wirklichkeit mit ... irgendeinem vollkommenen Bild vergleichen würde, das ich mir in meiner Fantasie erschaffen habe.“
+Harry sah weg und schämte sich plötzlich. „Es tut mir leid“, sagte er mit leiser Stimme. „Aber ich habe eine Mum und einen Dad. Und ich weiß, dass ich mich nur unglücklich machen würde, wenn ich diese Wirklichkeit mit ... irgendeinem perfekten Bild vergleichen würde, das ich mir in meiner Vorstellung erschaffe.“
 
-„Das ist sehr weise von Ihnen“, sagte Professor McGonagall leise. „Aber Ihre leiblichen Eltern sind auf wahrhaft edle Weise gestorben – sie haben Sie beschützt.“
+„Das ist sehr weise von Ihnen“, sagte Professor McGonagall leise. „Aber Ihre biologischen Eltern sind auf wahrhaft edle Weise gestorben – um Sie zu beschützen.“
 
-Mich beschützt?
+*Um mich zu beschützen?*
 
-Etwas Seltsames zog sich um Harrys Herz zusammen.
+Etwas Seltsames schnürte Harrys Brust zusammen.
 
-„Also ... war es gar kein Autounfall? Was ist wirklich passiert?“
+„Also ... war es gar kein Autounfall? Was *ist* passiert?“
 
 Professor McGonagall seufzte. Sie tippte Harry mit ihrem Zauberstab an die Stirn, und für einen Moment verschwamm ihm die Sicht.
 
@@ -158,23 +156,23 @@ Professor McGonagall seufzte. Sie tippte Harry mit ihrem Zauberstab an die Stirn
 
 Dann schwang sie ihren Zauberstab erneut und klopfte dreimal gegen eine Backsteinmauer ...
 
-... die sich aushöhlte, ein Loch bildete, sich ausdehnte und erzitterte, bis daraus ein riesiger Torbogen entstand, der eine Fußgängerstraße auf der anderen Seite freigab. Eine lange Reihe von Geschäften war zu sehen, deren Auslagen alles Mögliche anpriesen – von echten Kesseln bis hin zu „Drachenleber“. Hexen und Zauberer eilten geschäftig von Laden zu Laden, manche mit Kindern im Schlepptau, die kleine, leuchtend bunte Roben trugen.
+... die sich aushöhlte, ein Loch bildete, sich ausdehnte und erzitterte, bis daraus ein riesiger Torbogen entstand, der den Blick auf eine Fußgängerstraße auf der anderen Seite freigab. Eine lange Reihe von Geschäften war zu sehen, deren Auslagen alles Mögliche anpriesen – von echten Kesseln bis hin zu „Drachenleber“. Hexen und Zauberer eilten geschäftig von Laden zu Laden, manche mit Kindern im Schlepptau, die kleine, leuchtend bunte Roben trugen.
 
-Harry blinzelte nicht.
+Harry blinzelte nicht einmal.
 
 Es war schließlich nicht so, als würde sich gerade jemand in eine Katze verwandeln.
 
-„Willkommen in der Winkelgasse, Mr. Potter.“
+„Willkommen, Mr. Potter, in der Winkelgasse.“
 
 Und gemeinsam traten sie vorwärts – hinein in die Welt der Zauberer.
 
-Hier, da war Harry sich sicher, zeigte sich die wahre Meisterleistung der magischen Geheimhaltung. Eine ganze lange, verwinkelte Straße mitten in London, völlig unbekannt für die Menschen, die dort lebten. Nur außerordentlich mächtige Magie oder politische Abkommen höchster Ebene konnten verhindern, dass Flugzeuge oder Satelliten einen solchen Ort bemerkten.
+Hier, da war Harry sich sicher, zeigte sich die wahre Meisterleistung der magischen Geheimhaltung. Eine ganze, lange, verwinkelte Straße mitten in London, seinen Einwohnern völlig unbekannt. Nur außerordentlich mächtige Magie oder politische Abkommen höchster Ebene konnten verhindern, dass Flugzeuge oder Satelliten einen solchen Ort bemerkten.
 
-Überall priesen Händler ihre Waren an. Da gab es Sprungstiefel („Mit echtem Flubber hergestellt!“), Brillen, die alles grün erscheinen ließen, und eine Reihe bequemer Sessel mit eingebauten Schleudersitzen für Notfälle. Manche Gebäude waren nur ein oder zwei Stockwerke hoch, andere ragten mehrere Etagen empor und wirkten so bizarr konstruiert, als hielte sie allein Magie aufrecht.
+Überall priesen Händler ihre Waren an. Da gab es Sprungstiefel („Mit echtem Flubber!“), Brillen, die alles, was man damit ansah, grün werden ließen, und eine Reihe bequemer Sessel mit eingebauten Schleudersitzen für Notfälle. Manche Gebäude waren nur ein oder zwei Stockwerke hoch, andere ragten mehrere Etagen empor und wirkten so bizarr konstruiert, als ob sie allein durch Magie aufrecht gehalten wurden.
 
-Harrys Kopf drehte sich unaufhörlich, als wolle er sich selbst vom Hals schrauben.
+Harrys Kopf drehte sich in alle Richtungen, als wolle er sich selbst vom Hals schrauben.
 
-Es war, als spazierte er durch die Abteilung für magische Gegenstände eines Advanced Dungeons & Dragons-Regelbuchs (er hatte zwar niemanden, mit dem er spielen konnte, aber die Regelbücher las er ausgesprochen gern). Harry wollte um keinen Preis auch nur einen einzigen Verkaufsgegenstand übersehen – falls sich darunter einer der drei befand, die man brauchte, um den Kreislauf unendlich vieler Wunschzauber zu vollenden.
+Es war, als spazierte er durch die Abteilung für magische Gegenstände eines Advanced Dungeons & Dragons-Regelbuchs (er hatte zwar niemanden, mit dem er spielen konnte, aber er las gern die Regelbücher). Harry wollte um keinen Preis auch nur einen einzigen Verkaufsgegenstand übersehen, für den Fall, dass sich einer davon als einer der drei Bestandteile herausstellte, die man brauchte, um den Kreislauf unendlich vieler Wunschzauber zu schließen.
 
 Dann entdeckte Harry etwas, das ihn völlig ohne nachzudenken von der stellvertretenden Schulleiterin weglenkte und geradewegs auf einen Laden mit blauen Backsteinen und bronzenen Verzierungen zusteuern ließ.
 
@@ -186,11 +184,11 @@ Harry blinzelte und begriff, was er gerade getan hatte.
 
 „Entschuldigung! Für einen Moment habe ich vergessen, dass ich mit Ihnen unterwegs bin und nicht mit meiner Familie.“
 
-Er deutete auf das Schaufenster, in dem flammende Buchstaben hell und zugleich seltsam fern leuchteten. Sie bildeten den Namen Bigbams brillante Bücher.
+Er deutete auf das Schaufenster, in dem feurige, strahlend helle Buchstaben die Worte *Bigbams Brillante Bücher* bildeten.
 
-„Wenn man an einer Buchhandlung vorbeikommt, in der man noch nie gewesen ist, muss man hineingehen und sich umsehen. Das ist eine Familienregel.“
+„Wenn man an einem Bücherladen vorbeikommt, in der man noch nie gewesen ist, muss man hineingehen und sich umsehen. Familiengesetz.“
 
-„Das ist das Ravenclaw-hafteste, was ich je gehört habe.“
+„Das ist das Ravenclaw-hafteste, was ich jemals gehört habe.“
 
 „Wie bitte?“
 
@@ -198,7 +196,7 @@ Er deutete auf das Schaufenster, in dem flammende Buchstaben hell und zugleich s
 
 Sie seufzte.
 
-„Und ich nehme an, ein gewisser Betrag für Bücher lässt sich ebenfalls entschuldigen. Trotzdem sollten Sie sich vielleicht noch etwas gedulden. Hogwarts besitzt eine ausgesprochen große Bibliothek zu magischen Themen. Und der Turm, in dem Sie – wie ich stark vermute – wohnen werden, verfügt über eine noch umfassendere Bibliothek. Jedes Buch, das Sie jetzt kaufen würden, wäre wahrscheinlich ohnehin doppelt vorhanden.“
+„Und, ich nehme an, ein gewisser Betrag für Bücher lässt sich ebenfalls entschuldigen. Allerdings sollten Sie sich vielleicht noch etwas gedulden. Hogwarts besitzt eine ausgesprochen große Bibliothek zu allen magischen Themen. Und der Turm, in dem Sie – wie ich stark vermute – wohnen werden, verfügt über eine noch umfassendere Bibliothek. Jedes Buch, das Sie jetzt kaufen würden, wäre wahrscheinlich ohnehin vorhanden.“
 
 Harry nickte, und sie gingen weiter.
 
@@ -206,67 +204,55 @@ Harry nickte, und sie gingen weiter.
 
 Professor McGonagall schwieg eine Weile.
 
-„Ihre Eltern – oder zumindest Ihre Mutter – waren vielleicht sehr weise, Ihnen nichts davon zu erzählen.“
+„Ihre Eltern – oder zumindest Ihre Mutter – waren vielleicht sehr weise, es Ihnen nicht erzählt zu haben.“
 
-„Sie wünschen sich also, ich könnte in seliger Unwissenheit weiterleben? Dieser Plan hat allerdings einen kleinen Haken, Professor McGonagall.“
+„Sie wünschen sich also, ich würde in seliger Unwissenheit weiterleben? Dieser Plan hat eine gewisse Schwachstelle, Professor McGonagall.“
 
-„Ich nehme an, das wäre tatsächlich ziemlich sinnlos“, sagte die Hexe mit angespannter Stimme, „wenn Ihnen ohnehin jeder Mensch auf der Straße die Geschichte erzählen könnte. Nun gut.“
+„Es wäre wohl tatsächlich ziemlich sinnlos“, sagte die Hexe knapp, „wenn Ihnen ohnehin jeder Mensch auf der Straße die Geschichte erzählen kann. Nun gut.“
 
-Und sie erzählte ihm von Dem-dessen-Name-nicht-genannt-werden-darf, dem Dunklen Lord, Voldemort.
+Und sie erzählte ihm von Ihm-dessen-Name-nicht-genannt-werden-darf, dem Dunklen Lord, Voldemort.
 
 „Voldemort?“, flüsterte Harry.
 
-Der Name hätte lächerlich klingen sollen, tat er aber nicht. Er brannte mit einem Gefühl eisiger Kälte, erbarmungsloser Entschlossenheit und diamantener Klarheit – wie ein Hammer aus reinem Titan, der auf einen Amboss aus nachgiebigem Fleisch herabsaust. Schon allein beim Aussprechen überlief Harry ein Schauder, und er beschloss auf der Stelle, künftig lieber harmlosere Bezeichnungen wie Du-weißt-schon-wer zu verwenden.
+Der Name hätte lächerlich klingen sollen, tat er aber nicht. Er brannte mit einem Gefühl eisiger Kälte, erbarmungsloser Entschlossenheit und diamantener Klarheit – wie ein Hammer aus reinem Titan, der auf einen Amboss aus nachgiebigem Fleisch niederschlägt. Schon allein beim Aussprechen des Wortes überlief Harry ein Schauder, und er beschloss auf der Stelle, künftig lieber harmlosere Bezeichnungen wie Du-weißt-schon-wer zu verwenden.
 
-Der Dunkle Lord hatte im magischen Britannien gewütet wie ein entfesselter Wolf und das Gewebe des alltäglichen Lebens in Fetzen gerissen. Andere Länder hatten betroffen die Hände gerungen, aber gezögert einzugreifen – sei es aus gleichgültigem Eigennutz oder schlichter Angst. Denn welches Land auch immer als erstes den Dunklen Lord herausforderte, dessen Frieden würde als Nächstes Ziel seines Terrors werden.
+Der Dunkle Lord hatte in der britischen Zaubererwelt gewütet wie ein entfesselter Wolf und das Gewebe des alltäglichen Lebens in Fetzen gerissen. Andere Länder hatten betroffen die Hände gerungen, aber gezögert einzugreifen – sei es aus gleichgültigem Eigennutz oder schlicht aus Angst. Denn welches Land auch immer sich als erstes dem Dunklen Lord entgegenstellte, dessen Frieden würde das nächste Ziel seines Terrors werden.
 
-(Der Bystander-Effekt, dachte Harry und erinnerte sich an das Experiment von Latané und Darley, das gezeigt hatte, dass man eher Hilfe bekam, wenn man vor einer einzelnen Person einen epileptischen Anfall erlitt als vor drei. Verantwortungsdiffusion – jeder hofft, jemand anderes würde den ersten Schritt machen.)
+(Der *Zuschauereffekt*, dachte Harry und erinnerte sich an das Experiment von Latané und Darley, das gezeigt hatte, dass man eher Hilfe bekam, wenn man vor einer einzelnen Person einen epileptischen Anfall erlitt als vor drei. Verantwortungsdiffusion – jeder hofft, dass jemand anderes den ersten Schritt macht.)
 
-Die Todesser waren im Kielwasser des Dunklen Lords und oft auch an seiner Spitze gefolgt – Aasgeier, die sich auf frische Wunden stürzten, oder Schlangen, die mit ihren Bissen ihre Opfer schwächten. Sie waren nicht so schrecklich wie der Dunkle Lord selbst, doch sie waren schrecklich genug. Und es gab viele von ihnen.
+Die Todesser waren im Kielwasser des Dunklen Lords und in seiner Vorhut gefolgt, Aasgeier, die an Wunden rissen, Schlangen, die bissen und schwächten. Die Todesser waren nicht so schrecklich wie der Dunkle Lord, aber sie waren schrecklich, und sie waren viele. Und die Todesser verfügten über mehr als nur Zauberstäbe; es gab Reichtum in ihren maskierten Rängen, und politische Macht, und erpresserische Geheimnisse – genug, um eine Gesellschaft zu lähmen, die versuchte, sich selbst zu schützen.
 
-Außerdem verfügten die Todesser über weit mehr als Zauberstäbe. Hinter den Masken verbargen sich Reichtum, politischer Einfluss und Geheimnisse, mit denen sie andere erpressten – genug, um eine Gesellschaft zu lähmen, die versuchte, sich selbst zu schützen.
+Ein alter und angesehener Journalist namens Yermy Wibble forderte höhere Steuern und die Einführung der Wehrpflicht. Er rief laut, es sei absurd, dass die Vielen sich vor den Wenigen versteckten.
 
-Ein alter und hoch angesehener Journalist namens Yermy Wibble forderte höhere Steuern und die Einführung der Wehrpflicht. Er rief laut, es sei absurd, dass die Vielen sich vor den Wenigen versteckten.
+Am nächsten Morgen fand man seine Haut – nur seine Haut – an die Wand der Redaktion genagelt. Daneben hingen die Häute seiner Frau und seiner beiden Töchter.
 
-Am nächsten Morgen fand man lediglich seine Haut – und nur seine Haut – an die Wand der Redaktion genagelt. Daneben hingen die Häute seiner Frau und seiner beiden Töchter.
+Jeder wünschte sich, dass jemand etwas unternehmen würde, und niemand wagte es, aufzustehen und es vorzuschlagen. Wer auffiel, an dem wurde ein Exempel statuiert.
 
-Jeder wünschte sich, dass endlich mehr unternommen würde.
+Bis die Namen von James und Lily Potter ganz oben auf der Liste standen.
 
-Niemand wagte jedoch, als Erster vorzuschlagen, was genau getan werden sollte.
-
-Denn wer am meisten auffiel, wurde zum nächsten abschreckenden Beispiel.
-
-Bis schließlich die Namen von James und Lily Potter ganz oben auf dieser Liste standen.
-
-Und die beiden wären vielleicht mit den Zauberstäben in den Händen gestorben, ohne ihre Entscheidungen auch nur einen Augenblick zu bereuen. Denn sie waren Helden.
-
-Aber sie hatten ein kleines Kind.
-
-Ihren Sohn Harry Potter.
+Und diese beiden wären vielleicht aufrecht und mit gezückten Zauberstäben gestorben, ohne ihre Entscheidungen zu bereuen, denn sie waren Helden; aber sie hatten ein kleines Kind, ihren Sohn, Harry Potter.
 
 Harry spürte, wie ihm Tränen in die Augen stiegen. Wütend – oder vielleicht verzweifelt – wischte er sie fort.
 
-Ich kannte diese Menschen doch gar nicht. Nicht wirklich. Sie sind jetzt nicht meine Eltern. Es wäre sinnlos, ihretwegen so traurig zu sein ...
+*Ich kannte diese Menschen doch gar nicht. Nicht wirklich. Sie sind jetzt nicht meine Eltern. Es wäre sinnlos, ihretwegen so traurig zu sein ...*
 
-Als Harry schließlich aufgehört hatte, in Professor McGonagalls Roben zu schluchzen, blickte er auf und fühlte sich ein wenig besser, als er bemerkte, dass auch ihr Tränen in den Augen standen.
+Als Harry aufgehört hatte, in Professor McGonagalls Roben zu heulen, blickte er auf und fühlte sich ein wenig besser, als er bemerkte, dass auch ihr Tränen in den Augen standen.
 
 „Und was geschah dann?“, fragte Harry mit zitternder Stimme.
 
-„Der Dunkle Lord kam nach Godric's Hollow“, flüsterte Professor McGonagall. „Sie hätten verborgen sein sollen. Doch jemand hat Sie verraten. Der Dunkle Lord tötete James. Dann tötete er Lily. Schließlich kam er zu Ihnen, zu Ihrer Wiege. Er belegte Sie mit dem Todesfluch – und dort nahm alles ein Ende.
+„Der Dunkle Lord kam nach Godric's Hollow“, flüsterte Professor McGonagall. „Sie hätten versteckt sein sollen, doch jemand hatte Sie verraten. Der Dunkle Lord tötete James, und er tötete Lily, und er kam am Ende zu Ihnen, zu Ihrer Wiege. Er belegte Sie mit dem Todesfluch, und dann war es zu Ende.
 
-Der Todesfluch besteht aus reinem Hass. Er trifft unmittelbar die Seele und trennt sie vom Körper. Er lässt sich nicht abwehren. Wen auch immer er trifft, der stirbt.
+Der Todesfluch besteht aus reinem Hass und zielt direkt auf die Seele, trennt sie vom Körper. Er lässt sich nicht abwehren. Wen auch immer er trifft, der stirbt.
 
 Aber Sie haben überlebt.
 
-Sie sind der einzige Mensch, dem das jemals gelungen ist.
+Sie sind der einzige Mensch, der je überlebt hat.
 
-Der Todesfluch prallte zurück und traf stattdessen den Dunklen Lord. Von ihm blieb nur der verkohlte Rest seines Körpers zurück – und die Narbe auf Ihrer Stirn.
+Der Todesfluch prallte zurück und traf den Dunklen Lord. Nur die angesengte Hülle seines Körpers blieb zurück, und die Narbe auf Ihrer Stirn.
 
-Damit endete der Terror.
+Damit fand der Terror sein Ende, und wir waren frei.
 
-Und wir waren frei.
-
-Deshalb, Harry Potter, nennt man Sie oft den Jungen, der überlebte. Deshalb möchten die Menschen die Narbe auf Ihrer Stirn sehen. Und deshalb wollen sie Ihnen die Hand schütteln.“
+Deshalb, Harry Potter, nennt man Sie oft den Jungen, der überlebte. Deshalb möchten die Menschen die Narbe auf Ihrer Stirn sehen und Ihnen die Hand schütteln.“
 
 Der Sturm des Weinens hatte alle Tränen aus Harry herausgespült.
 
@@ -280,7 +266,7 @@ Harry löste sich von Professor McGonagalls Seite.
 
 Er starrte auf seine Schuhe.
 
-„Ähm ... Sie können sie ruhig einfach meine Eltern nennen, wenn Sie möchten. Sie müssen nicht ständig ‚meine leiblichen Eltern‘ sagen oder so. Ich schätze, es gibt keinen Grund, warum ich nicht zwei Mütter und zwei Väter haben könnte.“
+„Ähm ... Sie können sie ruhig meine Eltern nennen, wenn Sie mögen. Sie müssen nicht ‚biologische Eltern‘ oder so etwas sagen. Ich schätze, es gibt keinen Grund, warum ich nicht zwei Mütter und zwei Väter haben kann.“
 
 Professor McGonagall sagte nichts.
 
