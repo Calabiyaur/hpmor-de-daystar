@@ -80,8 +80,6 @@ Harry folgte ihr in Richtung des Pubs.
 
 Harry versuchte, diese Information mit seinem Verständnis von Genetik in Einklang zu bringen, wurde jedoch abgelenkt, als sie den Tropfenden Kessel betraten. Er fuhr mit dem Kopf herum, um zu sehen, ob beim Eintreten irgendetwas Bemerkenswertes geschah, konnte jedoch weder ein Unsichtbarkeitsfeld entdecken, das sich über ihn legte, noch schien irgendjemand auf der Straße zu bemerken, dass zwei Menschen plötzlich verschwanden.
 
-# Korrekturlesen ab hier
-
 Das Innere des Pubs war etwas düster und heruntergekommen. Hölzerne Tische standen verstreut im Halbdunkel, und die hintere Wand wurde von einer schmuddeligen Theke eingenommen. Etwa ein Dutzend Menschen hielt sich dort auf; die meisten trugen Roben in den verschiedensten Farben.
 
 „Guten Morgen, Professor McGonagall“, sagte der Wirt lächelnd.
